@@ -1,1 +1,1 @@
-# VPjavasrc
+Kazka naujo as parasiau
